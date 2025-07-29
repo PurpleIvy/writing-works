@@ -1,6 +1,8 @@
 
 Portal Novelisation.
 
+## Chapter 1
+
 “**Hello, and again, welcome to the Aperture Science Computer Aided Enrichment Centre**.” 
 
 The monotonous voice spoke out as soon as Chell opened her eyes, sitting up in the glass suspension chamber she had been sleeping in. How long had it been? Chell couldn't remember. Though there was no mirror in sight to tell for certain, Chell looked down at her body, unable to see any visible change. 
@@ -51,7 +53,8 @@ Nothing happened. Or rather, she wasn't vaporised. Her foot landed on the ground
 
 End of [[Chapter 1]]
 
-Chapter 2
+
+## Chapter 2
 
 Chell felt like grabbing her ears and holding them shut at the elevator whirred up the facility with a metallic screech akin to a banshee. Fortunately for Chell, the elevator came to a stop rather quickly, and she was able to avoid listening to the scratching sound for any longer. She assumed it would return with the next elevator, though of course held out hope that there would be some maintenance staff able to oil the sides of the elevator in time. She recalled the viewing decks from the previous test chamber. She thought to herself that surely one of them would have evidence of a researcher there. Surely. Before she could finish her thought, the elevator doors whirred open, creating a noise far kinder on the ears than the elevator itself was, giving Chell a much needed break.
 
@@ -75,19 +78,26 @@ She landed with a thud, but was surprised that she barely felt the impact at all
 
 The voice said nothing more, and Chell guessed that it was a collection of pre-recorded messages with certain responses for if she took certain actions. Chell took out the radio, fiddling with the audio, as two gateways opened up. An orange one directly beneath the ledge she had been standing on, and the blue one in the room with the button. She placed the radio on the ground, and walked through the door, assuming she would still be able to hear it from the other side of the glass. She noticed that she was right, as she walked towards the button. 
 
-Chell stepped onto the button, turning behind her to see the door open up. She only saw it in her peripheral vision, however, as the main focus of her eyesight was the solid wall that was now placed in front of her. The one she had just walked through in order to access the room. Chell sat down on the button, her head spinning. She might be trapped. Had she messed up this seemingly easy test somehow? Someone would come help her if she *was* trapped, wouldn't they? She tried to focus on the radio's humming, looking towards it for support. As if it could hear her, the volume of the song had reach a trough, just long enough for Chell to hear the 
+Chell stepped onto the button, turning behind her to see the door open up. She only saw it in her peripheral vision, however, as the main focus of her eyesight was the solid wall that was now placed in front of her. The one she had just walked through in order to access the room. Chell sat down on the button, her head spinning. She might be trapped. Had she messed up this seemingly easy test somehow? Someone would come help her if she *was* trapped, wouldn't they? She tried to focus on the radio's humming, looking towards it for support. As if it could hear her, the volume of the song had reach a trough, just long enough for Chell to hear the high pitched fizzling of the doorway seemingly closing and reopening. 
+
+She glanced towards the direction of the noise, to see the blue gateway appear in the room with the cube for a few seconds, before fizzling out again, re-materialising with a slightly higher pitched noise in the room with Chell. She scrambled to her feet and ducked towards the gateway, managed to get through just a fraction before it closed. She slid on the ground, hurting her palms and knees, but she was safe and back in the open room she had jumped down to. Chell turned to face the orange gateway, but didn't dare to step through it yet. She watched as the space behind it changed with that same fizzling noise, now showing the room with a cube. Cube, Button, Exit. Cube, Button, Exit. Chell watched the pattern repeat a couple more times for good measure, then walked through the doorway once it swapped to show the cube. It shut behind her as she reached the cube, but she felt less anxious now. It was going to return, she knew that now.
+
+Realistically, given the pattern, her spiral had only lasted a few seconds, since she returned through the portal the second it returned. She knew that, though she still felt embarrassed at having done that in front of the camera. She would have to keep herself composed next time. People were watching her, after all. The blinking red light on the camera that followed her told her all that she needed to know. Even if the viewing decks were seemingly always empty, at the very least *someone* was watching her.  
+
+She picked up the cube, and walked towards the doorway, her thoughts taking up enough time for the portal to return. She chucked the cube through, weighing the same amount as it had in the last chamber, and it landed with a metallic thud in the open room, though accidentally hitting the radio and sending it sliding across the room with a scraping sound. She swiftly followed the cube through the gateway, not wanting to find out what happens if it swaps locations while she remains inside of it. 
+
+Chell picked up and dusted off the humming radio, which was seemingly unperturbed by its sudden relocation, and placed it on the ground beside the gateway, as she waited for a full cycle of the pattern, before sending the cube and herself through to the large red button. She placed the cube on the button, proud of herself for managing to get through the test despite her earlier difficulties. She expected the voice to say something upon completion, as it had in the previous test, so was unsurprising to hear it return.
+
+**"Perfect. Please move quickly to the chamberlock, as the effects of prolonged exposure to the Button are not part of this test."**
+
+Chell considered staying with the cube anyway, despite the apparent unknown effects it might cause, but decided against doing so. She wanted to get out of this test chamber as quickly as possible so she could make sure to figure out how to complete the next one, whatever that may be. So she waited for another cycle of the gateways, passing through to the main area with the radio, picking it up and taking it out with her as she re-entered the portal, this time below the viewing deck, facing the exit.
+
+As she passed through, the radio in her hand started to spit out static, the cheerful humming growing quieter and quieter until only the static remained. Chell tried fiddling with the buttons on it, and the radio started screaming out some beeps, far louder than the humming had been. Beep beep pause beep pause beep beep. It continued for what felt like a few minutes until it relaxed for a few moments. Then it started up again, beeping the same beeps over and over again, as if trying to send Chell a message. She wondered whether the radio itself was the one trying to talk to her, but discarded that possibility almost instantly, that would be highly unlikey, why would there be a sentient metal radio in the room she woke up in. No, she decided that someone, somewhere, was trying to send her a message. Unfortunately for the mystery messenger, Chell did not know morse could, and as she was trying to remember the message, she kept forgetting parts of the message. She glanced at the blinking red light of the camera, pointing straight at her, and decided to continue through the tests. The person sending her this message was likely not the same one behind the camera, and Chell hoped that this person would try to find a different way of sending her a message if they were truly desperate.
+
+Chell walked up to the emancipation grill, but hesitated before passing through it. She had already discarded the possibility that the radio itself was sentient, and trying to send her a message. But what if she was wrong? Did she really want to disintegrate a potentially sentient creature? She placed the radio on the ground with a gentle kiss, putting it down just before the emancipation grill, and entered the elevator to leave to the next test chamber. She could hear the humming of the radio getting quieter as she rose, but it still helped to make the grating sound of the elevator less painful to her ears.
 
 
 
-The portal opens up, and Chell, knowing it is now safe to do so from before, walks through, leaving the radio behind, as she would still be able to hear the music.
-
-She walks through, and steps on the button, which opens the door to the exit. 
-
-As she steps off the button, the portal she entered through vanishes, and she can see it moved to the room with the cube, with the orange one staying where it was.
-
-She minorly freaks out, getting worried, though the camera watching her allows her to compose herself slightly
-
-The portal returns to her room and she quickly steps through it, not wanting to spend more time in that room than is required.
 
 CHAPTER 2 notes
 
