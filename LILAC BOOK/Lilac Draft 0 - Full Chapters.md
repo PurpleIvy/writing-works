@@ -1,6 +1,6 @@
 
-
 **Prologue \- The Fall**
+([[Lilac Draft 0 - Comments|Comment]])
 
 Lilac sat and peered down over the bridge railing, the churning mass of ever-shifting wires, cables, and neon lights all the way down the Split glaring back up at her. She stood back up, pacing around, glancing repeatedly at the door to the roof she had just walked from. She had placed an Ichor bar across the handle, so theoretically it shouldn't budge if someone tried to open it. Theoretically, at least. Different scenarios kept racing through her mind, what if a person behind the door was able to just break through it? What if they could have enough Ichor to overcome her own?
 
@@ -35,6 +35,7 @@ I’m sorry, I failed you. Again.
 The pain was too much for her to bear, and Lilac collapsed into unconsciousness.
 
 **Chapter 1**
+([[Lilac Draft 0 - Comments|Comment]])
 
 Lilac woke up in a daze to the light from a window across the room beaming down on her face. Looking around, she realised she had no idea where she was. It didn’t help that she was barely able to take anything in, and only her left eye seemed to be working. She tried sitting up from the bed she was in, to no avail. Her head was throbbing, as were her legs… or rather, leg? Lilac went back to sleep.
 
@@ -193,6 +194,7 @@ As he went to stand up, she thought about her mother, and her sister. *What woul
 “Wait\!” Lilac slowly rose, sitting up on her own for the first time since arriving in the hospital. She remembered who the voice who spoke to her belonged to. She remembered her face. Her eyes. She remembered why she was so desperate. Her jaw clenched as she spoke to the doctor. “I’ll take the Meritan.”
 
 **Chapter 2**
+([[Lilac Draft 0 - Comments|Comment]])
 
 “Hey, you\! You’re not allowed to be h– Oh. Sir White. I’m sorry about that, I didn’t realise you were still in the hospital.”
 
