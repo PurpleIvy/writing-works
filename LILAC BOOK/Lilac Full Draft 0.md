@@ -692,6 +692,12 @@ Trying to not make her leg any worse, her eyes grew wide when the leg snapped ba
 
 Lilac stumbled, nearly losing her balance as her leg returned to its normal, leg-like state, though she managed to stay upright. She checked her pockets, looking to see how much cash she had brought with her. Not much. She hadn’t had much in her room to begin with, but she had brought even less out. 
 
+
+
+
+
+
+
 She decides to buy a cane in the pawn shop next to her moms restaurant.
 
 As she is leaving she sees her mom going inside the building on the other side of the street waiting some tables.
