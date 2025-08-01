@@ -684,7 +684,7 @@ Lilac embraced the hug, “I'll be fine, I love you Li.”
 
 Lilac felt conflicted as she walked down the street, turning around corners in a way that seemed almost random. She occasionally nodded at certain people she recognised in shop windows, though she neither said anything to any of them, nor glanced up enough for them to get a good enough look at her modded eye in the mostly dark, but still lit up street lights. She liked it here, its… home. But she couldn’t deny, as much as she wanted to, that there was a part of her that longed to go back to Aureole. She remembered White’s speech, and that only made her more conflicted. He seemingly lived in the city out of… hatred? She had no idea why he stayed there, but he certainly lived rather luxuriously despite his obvious anger. She remembered the vitriol in his voice as he spat towards the city, those flames in his eyes. *Those flames… was it really just an illustration?* 
 
-She put it out of her mind, realising how exhausted she was from walking with a hunk of limp metal attached to her leg, and searched for somewhere to sit down for a moment, before continuing on to Tiger’s Walk. She glanced around, getting her bearings. She had just passed Narik’s pawn shop, she could turn left two streets down and walk straight there. That would require walking past her mother’s restaurant. She could smell it already, her mother loved using spices and herbs in her cooking, and the small streets in \[Lilac’s section of the Split\] trapped the smell nicely. The smell itself might have lured Lilac towards it if she wasn’t sitting down at the moment.
+She put it out of her mind, realising how exhausted she was from walking with a hunk of limp metal attached to her leg, and searched for somewhere to sit down for a moment, before continuing on to Tiger’s Walk. She glanced around, getting her bearings. She had just passed the sign for Narik’s pawn shop, she could turn left two streets down and walk straight there. That would require walking past her mother’s restaurant. She could smell it already, her mother loved using spices and herbs in her cooking, and the small streets in \[Lilac’s section of the Split\] trapped the smell nicely. The smell itself might have lured Lilac towards it if she wasn’t sitting down at the moment.
 
 She decided to wait on choosing which way to go until she felt she was ready to continue on, though the way that the thought of going past her mother and getting noticed caused her foot to clench made her feel like she had already made the decision. She ignored that, instead trying to look at her leg. It was about midday, but it was a work day, so fortunately the street itself was rather empty, with only the occasional passerby. Lilac had thankfully remembered to bring a small amount of Ichor with her, she knew from experience not to take *too* much with you, lest it get stolen and sold, usually back to you, for a far steeper price. She pulled the small metal ball from her pocket, there was a slight crack in it, but fortunately the Ichor remained imbued. She absorbed it, and felt the Ichor fill her reserves. It wasn’t as much as she had used… before her fall, but she wasn’t thinking very clearly in the moment, and wasted her entire stash that she hid in Rio’s closet. 
 
@@ -692,7 +692,72 @@ It should be enough for now, however. She hoped, anyway. She tried to remember w
 
 Trying to not make her leg any worse, her eyes grew wide when the leg snapped back to numbness as she reabsorbed the Ichor she had imbued her leg with As feeling left her leg, so too did the spiralling, with the metal foot going back to how it had looked like before, as if nothing had happened to it. She bent down and touched her now normal shapen foot and toes. She felt nothing. She paused, then doubting this was in any way a good decision, reimbued her leg with the Ichor, only a faint amount of the reserves having been used up, as normally happens when you imbue and absorb too quickly in succession, She felt that same feeling in her leg, though decided to avoid bending any of her toes for the time being. She stood up, deciding to place her weight down on it. As she pressed into the ground with both feet, she felt as if she would be able to walk. Then, her left side started to rise. And rise again, her leg growing longer as she subconsciously pushed it into the ground, with nowhere to go. She sighed, quickly reabsorbing the Ichor.
 
-Lilac stumbled, nearly losing her balance as her leg returned to its normal, leg-like state, though she managed to stay upright. She checked her pockets, looking to see how much cash she had brought with her. Not much. She hadn’t had much in her room to begin with, but she had brought even less out. 
+Lilac stumbled, nearly losing her balance as her leg returned to its normal, leg-like state, though she at least managed to remain upright. She checked her pockets, looking to see how much cash she had brought with her. Not much. She hadn’t had much in her room to begin with, but she had brought even less out with her. *Narik's is next to mom's restaurant, maybe he'll have something to help me. Damn it.*
+
+Lilac walked down the street, avoiding, trying to maintain a quick pace, as quick as she could manage at the moment anyway, and turned left at the corner. She could already smell the fish, it clung to her nose and made her want to gag, but she kept walking. Hopefully she would be able to avoid getting noticed by her mom. The restaurant itself was rather large compared to its surrounding shops, Lilac's mom, Rala, had been rather insistent on getting the space to expand her restaurant, even buying out the restaurant on the other side of the street for extra dining space. Lilac had enjoyed the previous restaurant, it had sold delicious Panchi for a reasonably cheap price, unlike her mother's expensive fish place. She glanced over at the ex-Panchi shop, to find her mother inside, serving customers with that typical fake grin of hers. She hadn't recognised it until she saw it again just now, but that grin reminded her of someone. *White? What would he be doing that for?* If she hadn't already been determined to get answers from him before, she was doubly intrigued now. He was hiding something, that much was certain, and she would find out what.
+
+She wouldn't be getting any answers here, however, and she attempted to keep walking past the shop. Unfortunately for Lilac, her speed wasn't fast enough, and her mother left the secondary shop, walking straight into her daughter. 
+
+"Oh..." she hesitated, before continuing, "L-Lilac... how are you? Have you changed your mind about fish yet?"
+
+"No mom, I was just on my way to Narik's and...."
+
+"Rio's?" Lilac nodded, feeling her throat clog up at the name, and not wanting to say anything else.
+
+"I was sorry to hear about that, she was an amazing customer, loved our fish. Give Tuli my love will you? Oh, right. I have something for them. stay right there."
+
+Rala excitedly walked off to the main restaurant, leaving Lilac standing there in the middle of the street. *Did she even notice my eye?* She considered just walking off, she could see the door to Narik's just up ahead. With her leg being as it was, however, she likely wouldn't have made it there in time. She had guessed correctly, as only a few seconds later Rala returned with a big bag of fish, thrusting it into Lilac's chest, as she just barely held back a gag.
+
+"Oh pull yourself together, it's just a fish."
+
+Lilac thanked her mom, then started to walk towards Narik's.
+
+"I- Isn't there something you need to tell me?"
+
+*Maybe she* did *notice... * 
+
+Lilac hesitated, making a sound that sounded vaguely like some indescribable word that hadn't yet been spoken before.
+
+"No good luck wish? The festival is coming up soon, and I'm getting busier and busier."
+
+*Of course...* "Uh, yeah. Good luck Mom, hope you sell a lot of... good fish."
+
+Rala smiled, thanking her daughter and walking back towards the main entrance of her restaurant. Lilac turned to the bag of fish in her hands, still successfully attempting to keep her insides inside of her, though she was uncertain how much longer she would be able to keep that up. She held the bag at arms length as she trudged down the road to Narik's. A small pawn shop with a bucket load of items outside. Few would dare steal from Narik, and the one's that *did* soon returned the items, with extra payment in tow. Lilac walked up to the shiny, brown wooden door, a rarity in this part of \[Lilacs residence\], and placed her hand on the doorknob. She twisted it, and the door squeaked open, allowing her inside the shop with the ringing of an antique bell.
+
+She had to make an effort to avoid falling over the merchandise, which was strewn all over the place, all of it perfectly labelled with name, price and how long it had been in Narik's possession. She slowly made her way towards the unattended front desk, sitting down on the chair next to it as she waited for Narik to see her. Soon enough, though not soon enough for the smell of fish to not engulf the entire store, Narik waltzed through the curtain of beads separating the two sections of the store. 
+
+"Ahh Lilac, so good to see you. I--- Ah, interesting, is that a standard model you have there? It looks rather basic, I can't imagine there are many features you can use."
+
+"Hey Narik, I think so, I wasn't really paying much attention when he told me about it. Anyway, that's... not what im here to talk about."
+
+"Of course, of course. But know this, my brother, he is a very good mod-doc, I'm sure if you wanted some more tech he would be more than pleased to help you out. If I recommend you he might even throw in a discount. But enough about that. I am all ears for you my friend."
+
+"Thanks Narik." Lilac considered explaining her situation, but decided it would be a lot easier to show him, as she hoisted her leg up onto the sturdy front desk between her and Narik. Narik started to complain, but stopped, his jaw opening wider than Lilac had ever remembered from him, as she infused her leg with a little bit of Ichor, causing the same spiralling as before.
+
+"I've got a bit of a situation with this leg of mine. I need something to help me walk until I can control it." She snapped her leg back to it's original state. Narik took a couple of seconds of staring in disbelief before he picked up his jaw from the floor. "And no, before you ask, it's not for sale."
+
+"Are you certain? Your mother has been trying to buy out my store for some time now, and this would certainly assist her." The words almost drooled out of his mouth as he looked at Lilac's leg.
+
+"I'm certain. Though I am curious why you want this so badly."
+
+"Who wouldn't? Telenium was thought to be a myth, a Construct from nearly pure Ichor centuries ago. How on \[Planet] did you get a hold of so much?"
+
+Lilac considered telling him, but thought against it. She didn't want the whole sector knowing she had been to Aureole after all. "I'm not selling that. I just want something that can help me walk, Narik."
+
+"Yes, yes, very well." Narik disappeared into the back half of the shop, rummaging around. He occasionally called out to Lilac asking her if there was anything specific she was looking for. 
+
+"I'm not exactly sure. My right leg is fine, so maybe something that i can use with my left?"
+
+"I have just the thing, though I'm not sure where I put it." He replied, followed by a number of clattering objects, and some rather unique curses spewing out of his mouth.
+
+
+She gets her cane
+
+Narik tells her she should be very careful, and that that leg of hers will be very sought after if people find out about it
+
+She thanks him and leaves
+
+She keeps walking down the road, using her new cane it is a lot faster than before, and arrives at Tiger's Walk
 
 
 
@@ -700,11 +765,15 @@ Lilac stumbled, nearly losing her balance as her leg returned to its normal, leg
 
 
 
-She decides to buy a cane in the pawn shop next to her moms restaurant.
 
-As she is leaving she sees her mom going inside the building on the other side of the street waiting some tables.
 
-She rushes past hoping not to get seen, but fails.
+
+
+
+
+
+
+
 
 Her mom gives her a hug but then says shes really busy and then just goes straight back to work.
 
