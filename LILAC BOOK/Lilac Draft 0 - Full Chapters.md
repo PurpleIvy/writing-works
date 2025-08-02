@@ -654,7 +654,7 @@ Chrys just laughed, “Mom would freak the fuck out if she saw you implant phaha
 
 Chrys looked her sister in the eye, pausing there for what felt like an uncomfortably long time. She sighed, “You're leaving again, aren't you?”
 
-“I'm sorry. I need to check in on Lyao… and then I have some other important things I need to do.”
+“I'm sorry. I need to check in on Tuli… and then I have some other important things I need to do.”
 
 Chrys closed her eyes, though Lilac couldn’t tell what she was feeling based on the rest of her facial expressions. She made a guess that she was worried, and weakly spoke out. “I won't be long. I promise.”
 
@@ -670,7 +670,7 @@ The pair continued making jabs at one another, pointing out minor things that th
 
 “You sure you'll be fine getting to Riaola’s with that anchor?” 
 
-“I'll manage. It's not *that* far. Once I get to the Tiger's walk I'll be set.”
+Hearing *her* name mentioned sparked a fire in her heart, though Lilac managed to hide it well. “I'll manage. It's not *that* far. Once I get to the Tiger's walk I'll be set.”
 
 “I assume offering my help will only make you less likely to accept?”
 
@@ -686,7 +686,7 @@ Lilac felt conflicted as she walked down the street, turning around corners in a
 
 She put it out of her mind, realising how exhausted she was from walking with a hunk of limp metal attached to her leg, and searched for somewhere to sit down for a moment, before continuing on to Tiger’s Walk. She glanced around, getting her bearings. She had just passed the sign for Narik’s pawn shop, she could turn left two streets down and walk straight there. That would require walking past her mother’s restaurant. She could smell it already, her mother loved using spices and herbs in her cooking, and the small streets in \[Lilac’s section of the Split\] trapped the smell nicely. The smell itself might have lured Lilac towards it if she wasn’t sitting down at the moment.
 
-She decided to wait on choosing which way to go until she felt she was ready to continue on, though the way that the thought of going past her mother and getting noticed caused her foot to clench made her feel like she had already made the decision. She ignored that, instead trying to look at her leg. It was about midday, but it was a work day, so fortunately the street itself was rather empty, with only the occasional passerby. Lilac had thankfully remembered to bring a small amount of Ichor with her, she knew from experience not to take *too* much with you, lest it get stolen and sold, usually back to you, for a far steeper price. She pulled the small metal ball from her pocket, there was a slight crack in it, but fortunately the Ichor remained imbued. She absorbed it, and felt the Ichor fill her reserves. It wasn’t as much as she had used… before her fall, but she wasn’t thinking very clearly in the moment, and wasted her entire stash that she hid in Rio’s closet. 
+She decided to wait on choosing which way to go until she felt she was ready to continue on, though the way that the thought of going past her mother and getting noticed caused her foot to clench made her feel like she had already made the decision. She ignored that, instead trying to look at her leg. It was about midday, but it was a work day, so fortunately the street itself was rather empty, with only the occasional passerby. Lilac had thankfully remembered to bring a small amount of Ichor with her, she knew from experience not to take *too* much with you, lest it get stolen and sold, usually back to you, for a far steeper price. She pulled the small metal ball from her pocket, there was a slight crack in it, but fortunately the Ichor remained imbued. She absorbed it, and felt the Ichor fill her reserves. It wasn’t as much as she had used… before her fall, but she wasn’t thinking very clearly in the moment, and wasted her entire stash that she hid in *her* closet. 
 
 It should be enough for now, however. She hoped, anyway. She tried to remember what the doctor said, and imbued her leg with her Ichor. She… felt it. She wasn’t exactly sure how, but she felt an odd sensation she hadn’t felt when White had used his own Ichor on her leg. Now that she was able to experience some feeling in her leg and foot, she decided to try and stretch her toes. They started to stretch. She could see her toes bend back towards her, feeling slightly differently then when she stretched with her. And then they bent even further. And further still. Before she realised it, all her toes had bent all the way backwards and were starting to attempt to bend further, as if they wanted to spiral into infinity. Lilac quickly stopped bending her toes, but they remained where they were. She gazed down in shock at her foot, which now bared a striking resemblance to a snail’s shell. She barely even noticed the fact that, despite her ability to feel her leg, she was in no amount of physical pain at the swirling toes.
 
@@ -698,11 +698,11 @@ Lilac walked down the street, avoiding, trying to maintain a quick pace, as quic
 
 She wouldn't be getting any answers here, however, and she attempted to keep walking past the shop. Unfortunately for Lilac, her speed wasn't fast enough, and her mother left the secondary shop, walking straight into her daughter. 
 
-"Oh..." she hesitated, before continuing, "L-Lilac... how are you? Have you changed your mind about fish yet?"
+"Oh... Lilac..." she hesitated on the name, before awkwardly continuing, "How are you? Have you changed your mind about fish yet?"
 
 "No mom, I was just on my way to Narik's and...."
 
-"Rio's?" Lilac nodded, feeling her throat clog up at the name, and not wanting to say anything else.
+"Rio's?" Lilac nodded, feeling her throat clog up at the name, and not wanting to say anything else. She tried to ignore the kindling that had been added to the spark in her heart.
 
 "I was sorry to hear about that, she was an amazing customer, loved our fish. Give Tuli my love will you? Oh, right. I have something for them. stay right there."
 
@@ -748,16 +748,60 @@ Lilac considered telling him, but thought against it. She didn't want the whole 
 
 "I'm not exactly sure. My right leg is fine, so maybe something that i can use with my left?"
 
-"I have just the thing, though I'm not sure where I put it." He replied, followed by a number of clattering objects, and some rather unique curses spewing out of his mouth.
+"I have just the thing, though I'm not sure where I put it." He replied, followed by a number of clattering objects, and some rather unique curses spewing out of his mouth. He returned a short while later, bearing an old, reinforced wooden cane. "AHA." He proudly presented it to Lilac, "it shouldn't break, but if it does you won't get a refund. How much do you have?" Lilac handed over all the money she brought with her, though held back on the Ichor for the moment. 
+
+"Hmm. It's not a lot." He eyed her suspiciously, and Lilac knew he was fishing for her Ichor. 
+
+*Damn it.* "How did you know?" She asked, forking over almost all of her remaining Ichor, leaving a small amount so she would be able to easily access Riola's balcony, though even just the thought of her name made the fire she could feel in her heart get dangerously close to exploding. She wondered whether seeing Tuli would actually help, though Narik responded before she could answer herself.
+
+"Telenium like that," he nodded towards her leg, "needs Ichor to run, though its still an extremely tough metal when uninfused."
+
+"I meant about Telenium."
+
+"How do you *not*? Shit's the biggest myth around."
+
+"Guessed I missed out on it."
+
+"Phah, well. Other people didn't. Don't be showing off that leg like you did for me. I can keep my mouth shut, but others..." He trailed off, staring at Lilac's leg, nearly drooling yet again. He snapped himself back to reality, and looked her in the eye. "Just... be careful." Lilac looked back into his eyes, and felt he was being genuine.
+
+"Yeah, I'll try, thanks." Lilac quickly grabbed the cane, though Narik stopped her from moving it, grabbing the other end.
+
+"I'm serious Lilac. You clearly don't know how valuable that shit is. I don't know who gave you that, but they put a fuckin bounty on your head."
+
+"Thanks. Narik." She yanked the cane, and he let go, letting Lilac leave his shop, using the cane to walk towards the exit, far easier than when she had walked in. Though she felt as though she could still feel Narik looking at that leg of hers up until she closed the door. She pondered over that last statement he made. White had essentially put a bounty on her head. Did he know that would happen? Was it so she would have an incentive to join him? She had planned on doing so anyway, but this had, surprisingly even to her, made her want to join him more. She wanted to find the plans behind his motives. She *would* find out what he was planning. Whether he wanted her to or not. She needed to be close to him to do so.
+
+Lilac found the cane surprisingly intuitive to use, though she noted that she was still unable to maintain anywhere close her original walking speed. At least it was faster than without it, she told herself. And it was, for she arrived at Tiger's Walk after only a few minutes of walking down the street. She passed through the gates, surprised at how busy the place still was. The clock in the corner of her vision told her that it was around 4pm, most people should be working around now, her mom certainly still was. Despite the apparent lack of people working, Lilac managed to walk to the middle of the catwalk with relative ease, gazing down the Split as she did so often, back before...
+
+The glistening lights of the balconies gazed back at her, Lilac only knew about four of the balconies, purely because she used to meet... She stopped thinking about those balconies, instead trying to peer down to the bottom of the Split. Even with her new eyes, the bottom was a pit of lights and specks of dust, probably people walking about. The Sunlit hour had passed a while ago, but she could still just barely make out a few flags on some balconies, people clearly having forgotten to put them away after the celebrations. She looked back up to the catwalk she was standing on, the red of the sky above—the little of it that was still visible at least—shone down through the many pipes, onto the catwalk, granting it its eponymous stripes. The street-goers manoeuvred around the light as easily as if they had done so their whole lives, probably the case for the majority of the people walking by. She watched as the people completely ignored her presence, most of them focused on their own path in front of them. She felt self-conscious anyway. She hadn't shown it to him before, but Narik had spooked her with his warning. How many of these people would throw her over the catwalk for her leg? She had already experienced falling down once before, she did NOT want to experience it again any time soon.*I'll take that risk to find out what happened to R-* She dared not let herself finish the name the fire inside her grow out of control, she wanted to talk to Tuli first. She peered down the Split once again, finding a reinforced but rather thin balcony, just far enough down and across that she could only make the jump to it with the help of some Ichor. She was glad she had kept some behind, not handing her entire stash over to Narik for the cane, even if she had to admit how helpful it had been.
+
+She braced herself, breathing in, imbuing herself with all of her remaining Ichor. She held tightly onto her new cane, not wanting to lose it immediately after buying it, and breathed out. She looked around the catwalk, waiting for a slight lull in activity from the passers by, then leaped down off the bridge. She hoped no one batted an eye, though her main concern now was with actually landing on the balcony she was intending to. She was dropping alarmingly fast, two balconies had flown past her already, and she narrowly missed the third, which was sticking out much further than the first two. The balcony she was aiming for was the fifth, and she aimed herself even more as she dropped past the fifth. She attempted to create a cushion with her Ichor, sending half of what she had in reserves. It barely created anything, but she hoped it would be enough as she plummeted down into it. 
 
 
-She gets her cane
+### Chapter 7/8
 
-Narik tells her she should be very careful, and that that leg of hers will be very sought after if people find out about it
 
-She thanks him and leaves
+She lands on the balcony with a crash, her leg and the balcony itself taking the brunt of the fall damage
 
-She keeps walking down the road, using her new cane it is a lot faster than before, and arrives at Tiger's Walk
+The impact of the fall went into her leg, which dispersed the majority of it before it went into her (cus of the interior structure of the metal, though she doesnt know that yet)
+
+She dropped the cane with the shock of landing, and it starts to roll off the edge as she lays down on the ground.
+
+She goes to reach for it, but accidentally knocks it off the edge.
+
+She thinks about grabbing it again, and her leg shifts itself down towards it, wrapping itself around her cane.
+
+(She accidentally infused her leg during the crash but didnt realise, and her thought about grabbing the cane caused it to shift)
+
+She tries to stop thinking, only thinking about moving her leg, still holding the cane, closer to her.
+
+It does so.
+
+
+
+
+
+
+
 
 
 

@@ -83,3 +83,10 @@ Basically imagine a sort of Genderqueer androgynous looking Edna Mode.
 
 
 
+```
+
+REMOVE MENTIONS OF SUN UNTIL LILAC FINALLY LEAVES THE SPLIT ON HER OWN ACCORD
+
+
+
+```
