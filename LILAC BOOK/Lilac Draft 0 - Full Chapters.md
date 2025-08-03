@@ -777,8 +777,7 @@ The glistening lights of the balconies gazed back at her, Lilac only knew about 
 She braced herself, breathing in, imbuing herself with all of her remaining Ichor. She held tightly onto her new cane, not wanting to lose it immediately after buying it, and breathed out. She looked around the catwalk, waiting for a slight lull in activity from the passers by, then leaped down off the bridge. She hoped no one batted an eye, though her main concern now was with actually landing on the balcony she was intending to. She was dropping alarmingly fast, two balconies had flown past her already, and she narrowly missed the third, which was sticking out much further than the first two. The balcony she was aiming for was the fifth, and she aimed herself even more as she dropped past the fifth. She attempted to create a cushion with her Ichor, sending half of what she had in reserves. It barely created anything, but she hoped it would be enough as she plummeted down into it. 
 
 
-### Chapter 7/8
-
+### Chapter 7/8 - LILAC POV
 
 She lands on the balcony with a crash, her leg and the balcony itself taking the brunt of the fall damage
 
@@ -796,11 +795,32 @@ She tries to stop thinking, only thinking about moving her leg, still holding th
 
 It does so.
 
+(... continued)
 
 
 
 
+### Chapter 7/8 - White POV
 
+White glances around, making certain he is alone.
+
+Relaxes, then sits down. He is somewhere that he is certain Beige, or someone she can contact, will arrive at shortly.
+
+He pets a very young black kitty, which jumps on his lap and starts sleeping. 
+
+He is extremely confused by this, most animals are terrified of him, and Beige walks in telling him that she (kitty) is used to her (Beige), and that must have allowed her to get used to *his* kind's scent.
+
+White says he is glad she turned up, and Beige and him talk to each other for a bit, both bantering, but also making it clear they truly do not want to be around each other more than they need to be, though neither one wants to disrupt the sleeping kitten.
+
+Eventually the kitten yawns and wakes up, realising Beige is home, and jumps almost straight into her arms, with Beige carrying her out of the room. agreeing to White that she will meet him at his office at some point soon.
+
+White agrees, saying that that is enough for him, and that she'll "want to know more once I let everyone in on the plan."
+
+Beige agrees, saying he never does anything without a reason, for better or for worse.
+
+White leaves, glad that Beige agreed to join, but annoyed at how much he let on without meaning to.
+
+(Whole chapter? maybe. maybe start with him navigating his way through the Dead-Lands)
 
 
 

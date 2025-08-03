@@ -15,17 +15,8 @@
               "state": {
                 "file": "LILAC BOOK/Lilac Draft 0 - Full Chapters.md",
                 "mode": "source",
-                "source": false,
                 "backlinks": true,
-                "backlinkOpts": {
-                  "collapseAll": false,
-                  "extraContext": false,
-                  "sortOrder": "alphabetical",
-                  "showSearch": false,
-                  "searchQuery": "",
-                  "backlinkCollapsed": false,
-                  "unlinkedCollapsed": true
-                }
+                "source": false
               },
               "icon": "lucide-file",
               "title": "Lilac Draft 0 - Full Chapters"
@@ -50,8 +41,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "alphabetical",
-                "autoReveal": false
+                "sortOrder": "alphabetical"
               },
               "icon": "lucide-folder-closed",
               "title": "Files"
@@ -180,9 +170,10 @@
   },
   "active": "df5175a58e03d9f5",
   "lastOpenFiles": [
+    "2025-08-03.md",
+    "LILAC BOOK/Lilac Draft 0 - Full Chapters.md",
     "LILAC BOOK/Lilac Draft 0 - Comments.md",
     "LILAC BOOK/Lilac Draft 0 - Planning.md",
-    "LILAC BOOK/Lilac Draft 0 - Full Chapters.md",
     "DAILY NOTES/2025-08-01.md",
     "Untitled.md",
     "README.md",
@@ -210,7 +201,6 @@
     "IDEAS",
     "MISC STORIES",
     "OLD LILAC",
-    "Portal Novelisation/Chapter 2.md",
     "PORTAL NOVELISATION",
     "LILAC BOOK"
   ]
