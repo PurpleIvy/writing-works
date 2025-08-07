@@ -787,7 +787,31 @@ Lilac tried to stay on the ground for a while, trying to collect her bearings. S
 
 "Eat."
 
-Lilac knew better than to object, so obliged, taking the food and, with slight difficulty, swallowed it.
+Lilac knew better than to object, so obliged, taking the food and, with slight difficulty, swallowed it. It tasted delicious. Tuli's cooking always did. Though it felt somewhat different this time, Lilac couldn't explain why. She still mopped it up, until Tuli left to make some more. Lilac laid back down on the bed, shutting her eyes. Most of the pain had already left, her body *was* used to doing this sort of thing, though not usually without Ichor. *R- Rio was usually there to help too...* The fire in her heart got a little bigger.
+
+Tuli returned a short while later with more food, and sat on the end of the bed. She placed the food on the windowsill, not letting Lilac touch it yet, instead choosing to bring her in for a hug. Lilac fully embraced it, trying not to cry in Tuli's shoulders. She did not succeed. Lilac started sobbing in Tuli's embrace, and she could feel Tuli doing the same. The tears streamed down Lilac's right side, her now metallic left eye not producing any tears. She felt as though her right side was making up for her left's lack of tears. Either that or she was just holding back so many in the few days since she heard the news.
+
+"She's really gone..." She manged to get it out, after a couple of failed attempts of inaudible sounds.
+
+Tuli just cried even more in response. And though Lilac realised the fire in her heart was closer to a blaze, it had grown without her realising. She was trembling, though she wasn't certain whether the crying had caused that or not. She tried to ignore the blaze inside her. She failed.
+
+"I.. I need to. Go. There."
+
+Tuli managed to take a break from her sobs to look Lilac in the eyes. With great difficulty, she was able to speak, letting out a faint "I can't stop you, can I?"
+
+Lilac didn't reply, choosing to instead look away. Tuli gently placed her hands on Lilac's jaw, turning her back to make eye contact again. "Please. Be safe. I can't... Not you too." She gave Lilac's forehead a kiss, then allowed her to leave. Lilac did so, though gave Tuli another hug before grabbing her final stash of Ichor from under the bed.
+
+Wiping her eyes as she reached the front door to Tuli's apartment, she called out to Tuli, who was now once again cooking some food. 
+
+"I'll be back. I promise. Soon."
+
+Tuli gave a grunt of a response, still barely able to speak words at the moment. Lilac took that as her cue to leave, and walked through the door, closing it slowly on her way out. As soon as she left that place her head felt slightly clearer, and her chest felt less tight. It wasn't enough to stop the fire completely, but it did dim slightly, flickering a little less than it had been before. Lilac felt at her face, realising she had forgotten to wash her face. She didn't care. She thought she knew where she had to go. Eaesod should be able to help her find it. They knew things. Didn't they? Lilac still couldn't really think straight. *How do I get there from here?* She started walking in a vague direction forwards.
+
+She walked for what felt like hours before finally stumbling upon an elevator the size of her apartment. Where was she going again? Oh, right. Eaesod. She entered the packed elevator, and barely heard the metallic screech of the doors as they closed, nor the elevator's strained whirring as it moved backwards. She heard the conversations of some of the people in the elevator, but couldn't understand a word they were saying, as though they were speaking a foreign language, perhaps they were. 
+
+The elevator stopped many more times on their way down to the stone floor of the Split, with the trip itself taking almost an hour. Lilac's head started working slightly better in that time. Distance from Tuli's apartment helped more than she had expected, but she needed to see her. Especially if she leaves to join White. She tried to keep her mind occupied with thoughts about how he had managed to seemingly teleport her home. She had heard of warping technology existing, but that needed two directly linked gates, and she couldn't see any gates at either place. 
+
+The elevator abruptly stopped, announcing that it had reached its final stop, and that everyone should get off. Lilac complied, following the crowd in front of her towards the cold stone of the origin of the Split. The very first buildings that would eventually because the enormous dense cluster of buildings on top of buildings on top of buildings that Lilac knew it to be. She hadn't studied a lot about the history of it, but she knew it was supposed to be very, very old. The architecture around her proved it even further, she hardly even recognised the materials used in some of the buildings as she walked down the street towards Eaesod's shop. She tried to keep her mind occupied, she couldn't afford to let the fire get much bigger, she wouldn't let it. The people passing by her had all sorts of different hairstyles and colours, many of them ones she had almost never seen before. Considering how many people had similar ones, however, she guessed that it was something to do with the Sunhour festival that she had missed earlier. She realised that she had completely missed the Sun while she was in Aureole, and chuckled to herself. People glanced at her following this, the occasional person staring a little too long for comfort at her eye, She looked down at her leg, and realised the Illustration drawn upon it by the Artists in the hospital was close to wearing off. She tried infuse all of her Ichor into it. It barely changed. She tried to hurry, using her cane to nudge people out of the way as she made her way towards Eaesod. It shouldn't be too far from her. *Hopefully*. The people moved around her cane, and she was able to stop nudging them for a bit. Her body was starting to ache a lot, however. Dragging her metallic leg around without it doing anything helpful in her movement was starting to take its toll, with her right leg feeling like it was about to explode, She decided she would wait and rest outside of Eaesod's shop. Would Eaesod let her rest inside the shop? *Probably not*, she thought to herself, remembering the last time she had visited and nearly broke the furniture in half. With the added weight of metal weighing her down, she would almost certain it would break in thirds this time. 
 
 
 
@@ -801,23 +825,33 @@ Lilac knew better than to object, so obliged, taking the food and, with slight d
 
 
 
-She lands on the balcony with a crash, her leg and the balcony itself taking the brunt of the fall damage
 
-The impact of the fall went into her leg, which dispersed the majority of it before it went into her (cus of the interior structure of the metal, though she doesnt know that yet)
+She walks down, passing by Eaesod's shop (the one white was at)
 
-She dropped the cane with the shock of landing, and it starts to roll off the edge as she lays down on the ground.
+she walks further, eventually reaching an elevator that she takes back up
 
-She goes to reach for it, but accidentally knocks it off the edge.
+The elevator goes up, then sideways slightly, then straight up again, and continues doing that sort of thing, swerving around different building cables and wires and houses and stuff
 
-She thinks about grabbing it again, and her leg shifts itself down towards it, wrapping itself around her cane.
+Its full of people, but she manages to fit anyway, being one of the last to get off.
 
-(She accidentally infused her leg during the crash but didnt realise, and her thought about grabbing the cane caused it to shift)
+She walks slower than before, even though she has her cane, because she is scared of what she might find. 
 
-She tries to stop thinking, only thinking about moving her leg, still holding the cane, closer to her.
+She goes there away, and the sight is appalling.
 
-It does so.
+Blood everywhere, pieces of torn flesh, corpses, and more.
 
-(... continued)
+She throws up. 
+
+She goes inside anyway, desperate to find proof of Riaola there.
+
+She does, finding a necklace of Riaola's broken apart on the ground, as if it the chain was ripped apart somehow.
+
+
+
+
+
+
+
 
 
 
@@ -844,84 +878,3 @@ White leaves, glad that Beige agreed to join, but annoyed at how much he let on 
 
 (Whole chapter? maybe. maybe start with him navigating his way through the Dead-Lands)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Her mom gives her a hug but then says shes really busy and then just goes straight back to work.
-
-Her mom doesn’t even notice the implant in her eye, or the cane in her hand.
-
-Lilac keeps walking, glad that she didnt get stopped for too long, and surprised at how nice the cane is for how cheap it was
-
-Chapter end as she gets to Tiger’s Walk and looks down over the Split.
-
-(Chapter 5 plan)  
-White stands on an empty bridge in the middle of the Split talking to TeVo……
-
-White says that TeVo have to wait until Lilac officially joins before he can meet her……
-
-TeVo mentions he already knows a significant amount about her, and tells White that he will not lie to her about that…..
-
-White says he doesn’t mind, so long as he keeps the important things hidden until the time is right….
-
-TeVo says he doesn’t want to, but will follow White’s request anyway…..
-
-The two of them talk about the upcoming members, and how long until the plan will be able to be put into motion…..
-
-He says that once Beige arrives they should be set to start….
-
-TeVo mentions there will be pushback from *him* and White says that he is counting on it…..  
-(him \= Iocaiser)
-
-White says the Relic’s appearance surprised him, but that it is extremely helpful….. 
-
-TeVo wonders how a seemingly unimportant girl in the Split managed to get her hands on something as powerful as the Relic, and why it appeared in the shape it did……  
-(The Relic is basically made from completely pure Ichor, all the Ichor that everyone uses is diluted, but the Relic is a permanent object created from pure Ichor. It allows Lilac to see Ichor in other objects because it ‘wants’ to absorb it.)  
-(The Relic can be used to purify Ichor, which can then be used to perform insane feats.)
-
-White says he needs to find that out from Lilac at some point…..
-
-Chapter ends with White dropping to the bottom of the Split and taking care of some adolescent bird-like “Monsters”, creating a proper safe nest for them, as he mentions the plan will help them too…...
-
-(Chapter 6 Plan)
-
-Lilac and her sister are eating lunch. 
-
-Their mother came home briefly then left again shortly afterwards.
-
-Lilac had stayed hidden from her in her sister’s room, not wanting to show her mother her new tech just yet.   
-(Lilac has mommy issues)
-
-Lilac shows Chrys her leg, the Illustration having worn off almost completely.
-
-Lilac says that she’s glad Chrys is appreciative of her new mods, but they both agree that other people probably won’t be given how clean it looks   
-(Since it was done in Aureole, not the Split)
-
-Lilac says she plans to go to Riaola's later, then has somewhere she needs to be, and will be back in hopefully just a couple of days.
-
-Chrys is visibly worried by this, but understands, wishing her sister good luck, knowing how much Riaola meant to Lilac, possibly more than Lilac herself.
-
-Lilac leaves, asking Chrys to tell their mom she's at Riaola's, then adds a small “if she even asks” to the end.
-
-Lilac traverses her way through the Split to get to Riaola’s mom's place. She lands on the balcony and lets herself in with the key under the lilacs's flower pot. 
-
-Riaola's mom is there, and Lilac and her hug, both crying. Some pictures of Riaola have been taken down and put in a box.
-
-Riaola's mom doesn't even notice Lilac's eye until after they stop hugging, and is shocked that its so clean looking, and Lilac briefly explains what happened, and how a rich guy who's advertisement was here in the Split caused her crash, and he felt guilty so took her to a good hospital
-
-Riaola’s mom tries to give Lilac some of Riaola's belongs, saying Riaola doesn't need them anymore, and would want Lilac to have them, but Lilac says she can't take them at the moment, as she needs to leave soon  
-(She can feel her anger reaching a boiling point, combined with sadness)

@@ -14,6 +14,8 @@ Give each chapter it's own theme. 
 e.g Prologue setting up the main theme of the novel which is the anti-capitalism, and that hatred needs to be used careful so as to not be self-destructive.`
 ```
 
+DONT LET HER SEE THE SUN UNTIL OFFICIALLY JOINING WHITE SYMBOLISING THE START OF HER NEW LIFE FOLLOWING THE HOPE OF RIAOLA'S SURVIVAL
+
 
 ```
 `Make her angrier throughout, and have that ultimately lead to her fall and failure  
