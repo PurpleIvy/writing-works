@@ -618,25 +618,24 @@ Now able to stand inside the shop without wanting to get out of there as soon as
 
 The cashier stared straight at White. “Twenty. And. A. Ball.” They emphasised each word with extra pronounciation, their thick accent mixing with their nasally voice making them sound even more grating to White's ears, though he kept his cheery smile.
 
-“You really know what you want, when you want it.” He chuckled, and produced a standard sized wooden ball from his pocket, about the width of two finger nails, it was perfectly smooth. He fully infused it with Ichor, a fraction of his internal stores getting transfered, and placed it on the cashiers desk. He reached back into his pocket and produced a handful of large silver coins. 
+“You really know what you want, when you want it.” He chuckled, and produced a standard sized shiny metallic ball from his pocket, about the width of two finger nails, it was perfectly smooth. He fully infused it with Ichor, a fraction of his internal stores getting transfered, and placed it on the cashiers desk. He reached back into his pocket and produced a handful of large silver coins. 
 
-“The extra is for you, treat yourself to something nice, a young lady like yourself deserves all the treats she can get.”
+“The extra is for you, treat yourself to something nice, young ones like yourself deserves all the treats she can get.”
 
-The old cashier huffed, pocketing the coins, and White noticed, just barely, a hint of a smile, for the first time since entering their shop.
+The old cashier huffed, swiftly pocketing the coins with the experience of a veteran, though White noticed, just barely, a hint of a smile, for the first time since entering their shop.
 
 “Lily is a good girl. Why you want her?”
 
 “I plan to give her a job.”
 
-“I no know where she is, but I know she will come here.”
+“I not know where she lives, but she will come here i know.”
 
 “Excellent. When she does, will you give her this for me?”
 
-White produced a small card with an image and no text on it. The image showed a \[think of White's logo\], and the cashier nodded. White thanked them gracefully, finally seeing a fully visible smile on their face, and left to go back to the street. As he walked away from the shop, he realised that he had actually gotten used to the smell, and was starting to miss it.
+White produced a small card with an image and no text on it. The image showed a \[think of White's logo\], the cashier. White thanked them gracefully, finally seeing a fully visible smile on their face, as he swivelled on the heels of his now grimey shoes, backing out of the store. He picked a bench nearby the store to sit down on for the time being. Though he considered altering his current Illustration to make him seem as though he fit in more, he wasn't certain he wanted to reveal to the cashier what he could do just yet. 
 
-*Perhaps my initial reaction was a bit harsh. Regardless, Lily will not be naive enough refuse me two to go. After Lilac and brother destroyed it I doubt Beige received my message, I'll have to figure something else out for that one.*
 
-**CHAPTER 6 \- LILAC POV**
+### **CHAPTER 6 \- LILAC POV**
 
 Chrys placed the plates down on the table in front of them, handing Lilac her cutlery. Lilac took it, thanking her, and immediately started digging into her food.
 
@@ -813,11 +812,9 @@ The elevator stopped many more times on their way down to the stone floor of the
 
 The elevator abruptly stopped, announcing that it had reached its final stop, and that everyone should get off. Lilac complied, following the crowd in front of her towards the cold stone of the origin of the Split. The very first buildings that would eventually because the enormous dense cluster of buildings on top of buildings on top of buildings that Lilac knew it to be. She hadn't studied a lot about the history of it, but she knew it was supposed to be very, very old. The architecture around her proved it even further, she hardly even recognised the materials used in some of the buildings as she walked down the street towards Eaesod's shop. She tried to keep her mind occupied, she couldn't afford to let the fire get much bigger, she wouldn't let it. The people passing by her had all sorts of different hairstyles and colours, many of them ones she had almost never seen before. Considering how many people had similar ones, however, she guessed that it was something to do with the Sunhour festival that she had missed earlier. She realised that she had completely missed the Sun while she was in Aureole, and chuckled to herself. People glanced at her following this, the occasional person staring a little too long for comfort at her eye, She looked down at her leg, and realised the Illustration drawn upon it by the Artists in the hospital was close to wearing off. She tried infuse all of her Ichor into it. It barely changed. She tried to hurry, using her cane to nudge people out of the way as she made her way towards Eaesod. It shouldn't be too far from her. *Hopefully*. The people moved around her cane, and she was able to stop nudging them for a bit. Her body was starting to ache a lot, however. Dragging her metallic leg around without it doing anything helpful in her movement was starting to take its toll, with her right leg feeling like it was about to explode, She decided she would wait and rest outside of Eaesod's shop. Would Eaesod let her rest inside the shop? *Probably not*, she thought to herself, remembering the last time she had visited and nearly broke the furniture in half. With the added weight of metal weighing her down, she would almost certain it would break in thirds this time. 
 
+"Watch it!!" 
 
-
-
-
-
+Lilac didn't respond to the man who bashed into her shoulder. The pain was non-existent anyway. She kept walking, not looking back. While she didn't see the man walking towards her, she realised almost immediately afterwards anyway, as he pushed her in the back, tripping her over onto the hard, and surprisingly cold, stone floor.
 
 
 
