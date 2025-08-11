@@ -584,13 +584,13 @@ MASTER, *HE* WAS HERE.
 
 White groaned, and his partner's face shifted more nervously than White had seen in a long, long time. White couldn’t blame TeVo for that, few people who had encountered Iocaiser lived to tell the tale. TeVo was the only, complicated exception. Excluding White himself, at least. White told TeVo he could be dismissed if he needed it, and the Ichor that held the face together evaporated, leaving behind a faint after-image that quickly faded.
 
-White placed his hand around the now visible Black Ichor, though he still had to strain his vision to see it. He heard a voice speaking through it as his hand grazed it. “Ah, if it isn't my dear younger brother. I must say it is truly an honour for you to grace us with your presence, we all miss you so *deeply*. Come back to your family.” White clenched his fist so hard he crushed the remaining metal frame that the Ichor was attached to, and part of it fell to the catwalk below, landing with a sharp clang. The voice continued on, though White tuned it out. It wasn't as if it was live anyway. It had been an age since White had heard Iocaiser's voice, and it had been far too soon for his liking.
+White placed his hand around the now visible black coloured Ichor, though he still had to strain his vision to see it. He heard a voice speaking through it as his hand grazed it. “Ah, if it isn't my dear younger brother. I must say it is truly an honour for you to grace us with your presence, we all miss you so *deeply*. Come back to your family.” White clenched his fist so hard he crushed the remaining metal frame that the Ichor was attached to, and part of it fell to the catwalk below, landing with a sharp clang. The voice continued on, though White tuned it out. It wasn't as if it was live anyway. It had been an age since White had heard Iocaiser's voice, and it had been far too soon for his liking.
 
 White leapt off the ledge he was on, falling down all the way to the bottom of the Split, dodging and weaving through the catwalks, pipes, and clothes lines until he reached the very bottom, crowded with people. He slowed himself down with a platform Construct just before reaching the end, dismissing it and hopping down after reaching a height where he was satisfied he would not land directly on top of anyone walking through the busy street. 
 
-It was a good thing he waited, as a massive crowed had formed beneath him where they were marvelling at the size of his Construct. Whispers of Aureole passed through, and White distinctly heard someone mention the Priests of Harrow. *I wouldn't be caught* dead *worshipping Harrow.* The crowd cleared a small space for White as he landed on the uneven bricks on the ground. Before the space could refill with people coming closer to White, he created a cloud of Ichor, engulfing the crowd, as he cast an Illustration on himself.
+It was a good thing he waited, as a massive crowed had formed beneath him where they were marvelling at the size of his Construct. Whispers of Aureole passed through, and White distinctly heard someone mention the Priests of Harrow. *Harrow? I think he still owes me some money.* The crowd cleared a small space for White as he landed on the uneven bricks on the ground. Before the space could refill with people coming closer to White, he created a cloud of Ichor, engulfing the crowd around, as he cast an Illustration on himself.
 
-The cloud dissipated, and White had vanished from the centre. The passers-by cheered, some even praying, and looked around to see if they could see him. One passer-by started clapping, then stopped, and walked down the road in search of some food. This passer-by had long, blonde hair, with a small scar going from around the back of his left ear all the way to the top of his lip. If you asked him how he got it, he would tell you he was in a mugging incident, and would rather not bring up painful memories. He would be lying, of course. White had just improvised the design of his scar and hadn’t thought of an excuse for it yet. He had a couple of scars and stories in reserve of course, but he wanted to test his improvisational skills. The scar was visible enough that those who glance at him would be unlikely to notice the slightly unnatural shade to his eyes, or the way his teeth seemed almost too perfect. White still hadn’t quite perfected his Illustrations, though only extremely experienced Artists like Lily would be able to tell, and only in certain circumstances. Still he practised new techniques, pushing his Ichor usage to the next level every time, he would surely reach perfection any year now. 
+The cloud dissipated, and White had vanished from the centre. The passers-by cheered, some even praying, and looked around to see if they could see him. One passer-by started clapping, then stopped, and walked down the road in search of some food. This passer-by was wearing some dirty, baggy clothing, and had long, messy blonde hair, with a small scar going from around the back of his left ear all the way to the top of his lip. If you asked him how he got it, he would tell you he was in a mugging incident, and would rather not bring up painful memories. He would be lying, of course. White had just improvised the design of his scar and hadn’t thought of an excuse for it yet. He had a couple of scars and stories in reserve of course, but he wanted to test his improvisational skills. The scar was visible enough that those who glance at him would be unlikely to notice the slightly unnatural shade to his eyes, or the way his teeth seemed almost too perfect. White still hadn’t quite perfected his Illustrations, though only extremely experienced Artists like Lily would be able to tell, and only in certain circumstances. Still he practised new techniques, pushing his Ichor usage to the next level every time, he would surely reach perfection any year now. 
 
 White dipped into a small side street with very few pedestrians walking down it, and into a small shop with a slightly broken sign. If the alleyway had smelled like someone had combined the smells of a freshly made curry with rotting meat, the shop smelled like the vegetables in the curry were rotten too, as well as the chef who prepared it. White gestured to scratch his nose, quickly casting a hidden Illustration inside it that smelled like the Aureo Bay. 
 
@@ -632,7 +632,7 @@ The old cashier huffed, swiftly pocketing the coins with the experience of a vet
 
 “Excellent. When she does, will you give her this for me?”
 
-White produced a small card with an image and no text on it. The image showed a \[think of White's logo\], the cashier. White thanked them gracefully, finally seeing a fully visible smile on their face, as he swivelled on the heels of his now grimey shoes, backing out of the store. He picked a bench nearby the store to sit down on for the time being. Though he considered altering his current Illustration to make him seem as though he fit in more, he wasn't certain he wanted to reveal to the cashier what he could do just yet. 
+White produced a small card with an image and no text on it. The image showed a \[think of White's logo\], the cashier. White thanked them gracefully, finally seeing a fully visible smile on their face, as he swivelled on the heels of his now grimey shoes, backing out of the store. He picked a bench nearby the store to sit down on for the time being. Though he considered altering his current Illustration to make him seem as though he fit in more, he wasn't certain he wanted to reveal to the cashier what he could do just yet. *She'll probably be here soon,* he thought to himself, glancing down the low roofed side-street. *I'll just wait for her here I suppose.*
 
 
 ### **CHAPTER 6 \- LILAC POV**
@@ -814,7 +814,47 @@ The elevator abruptly stopped, announcing that it had reached its final stop, an
 
 "Watch it!!" 
 
-Lilac didn't respond to the man who bashed into her shoulder. The pain was non-existent anyway. She kept walking, not looking back. While she didn't see the man walking towards her, she realised almost immediately afterwards anyway, as he pushed her in the back, tripping her over onto the hard, and surprisingly cold, stone floor.
+Lilac didn't respond to the man who bashed into her shoulder. The pain was non-existent anyway. She kept walking, not looking back. While she didn't see the man walking towards her, she realised almost immediately afterwards anyway, as he pushed her in the back, tripping her over onto the hard, and surprisingly cold, stone floor. She barely reacted as he kicked her leg, then swore, grabbing his own foot. He walked off, muttering something she couldn't hear, though easily guessed what it was about. She laid there for some time, trying to get the energy and strength to stand back up again. Had falling off down onto the balcony hurt her more than she thought?  The people walking down the street just manoeuvred around her, making sure they didn't help or hinder her.
+
+After mustering up all the strength she had left, Lilac managed to stand up, resting on her cane as she slowly moved, laborous step after labourous step towards the Eaesod. *There's a bench outside their's isn't there? Ill just... rest... there.* She tried to stop herself thinking, even that was too painful for her at the moment, as she concentrated on moving there. It wasn't too far that she had to walk, and it would likely only have taken a few minutes or so if she was able to walk at her normal pace. Unfortunately, around fifteen minutes later she collapsed on the ground outside Eaesod's shop. The door to the shop opened, with the small shop owner coming out, their mouth agape. The last thing Lilac heard before she fell unconscious was a raspy "Rich boy, I see you there still! Help me bring her inside."
+
+									*
+
+After experiencing a little deja-vu as she felt tea being shoved down her throat, Lilac opened her eye to see not Tuli, but Eaesod and... a homeless man? She stared at him, and he looked back, as if studying her. Lilac carefully dragged her eye away from him, though still made an effort to keep him in her peripherals, instead choosing to look at Eaesod. With a great deal of effort she lifted a hand, telling them they could stop shovelling tea down her throat. Her two carers started talking, but Lilac was unable to focus on what they were saying, despite her best efforts. 
+
+"Go sleep. The tea will help. You need rest!" Eaesod's raspy voice called out to her, and though Lilac tried to object, the words wouldn't come out. She tried to move, but Eaesod just sat down on her burning chest, keeping her in place. 
+
+"I said sleep!" Lilac reluctantly complied with her captor's order, falling into a slumber that rivalled the one she had had in the hospital in Aureole. Unlike her sleep in the hospital bed, however, this one was different. This time, she dreamt.
+
+									*
+
+Lilac looked down, seeing her body looked like it was made purely from Ichor. Her body was moving, but she had no control over where it was going, as she floated around. in a world that looked like it was made of the same substance. It took her a little bit to notice that the burning sensation in her chest was gone, replaced by a tingling warmth throughout her body, though there was no physical body for her to feel with. She felt it anyway. As she looked around, the only part of her that she was able to control at the moment, she noticed with difficulty that she was currently hovering around where she had been before she lost her eye and leg, though it looked rather odd, being solely made from Ichor. Shortly after she had heard the news of Riaola's death by her kidnappers. The substance that made up her body grew brighter, getting slightly more solid, and the tingling grew slightly more painful. The Ichor here looked... wrong, almost. As she had been floating towards her, she could see lots of blue Ichor, in the shape of the parts of the Split she had swung past.
+
+
+
+She dreams of the place she had been at, and the advertisement she had hit. 
+
+Rewrite last past, to show her reliving the events of the day she was swinging, starting with her recieving the news of Riaola's murder, and though she is unable to see the letter itself, the words are etched into her brain.
+
+She eventually sees a massive glow just as she is about to hit White's advertisement.
+
+The glow surprises her again as she falls down, though she has more time to think about it this time.
+
+Unlike last time, however, she does not go unconscious as soon as she loses her leg. She doesn't even feel it this time, though she does see it happen as the ichor of her body loses its leg.
+
+She is trapped among some wires, also made of ichor in the shape of cables and wires.
+
+She eventually sees White materialise alongside another person, constantly shifting shapes, both made of Ichor.
+
+They talk, before the other person, still constantly shifting shapes suddenly looks as though it snaps out of a trance, and looks directly at Lilac.
+
+It is incredibly confused as to how Lilac could possibly be here, and also mentions that White told it not to show itself to her until... (she joins up)
+
+Both Lilac and the Person are extremely confused, and the Person mentions that this is likely due to her somehow managing to absorb the Relic from around her neck (it was in the shape of a necklace), and that it must have somehow changed a small part of her biology to make herself part Ichor, though it mentions how ridiculous that sounds. (Tevo is basically just talking to themselves, not caring that lilac doesn't understand a word they are saying)
+
+The Person vanishes, returning only a few seconds later to say that they should be able to send her back, and that White and Eaesod are still with her body.
+
+Lilac is confused by the fact that they said White was there, but The Person is too distracted to care at the moment.
 
 
 
@@ -823,39 +863,14 @@ Lilac didn't respond to the man who bashed into her shoulder. The pain was non-e
 
 
 
-She walks down, passing by Eaesod's shop (the one white was at)
-
-she walks further, eventually reaching an elevator that she takes back up
-
-The elevator goes up, then sideways slightly, then straight up again, and continues doing that sort of thing, swerving around different building cables and wires and houses and stuff
-
-Its full of people, but she manages to fit anyway, being one of the last to get off.
-
-She walks slower than before, even though she has her cane, because she is scared of what she might find. 
-
-She goes there away, and the sight is appalling.
-
-Blood everywhere, pieces of torn flesh, corpses, and more.
-
-She throws up. 
-
-She goes inside anyway, desperate to find proof of Riaola there.
-
-She does, finding a necklace of Riaola's broken apart on the ground, as if it the chain was ripped apart somehow.
 
 
 
 
 
 
+### Chapter 10 - White POV
 
-
-
-
-
-### Chapter 7/8 - White POV
-
-White glances around, making certain he is alone.
 
 Relaxes, then sits down. He is somewhere that he is certain Beige, or someone she can contact, will arrive at shortly.
 
