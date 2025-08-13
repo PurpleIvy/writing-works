@@ -824,37 +824,97 @@ After experiencing a little deja-vu as she felt tea being shoved down her throat
 
 "Go sleep. The tea will help. You need rest!" Eaesod's raspy voice called out to her, and though Lilac tried to object, the words wouldn't come out. She tried to move, but Eaesod just sat down on her burning chest, keeping her in place. 
 
-"I said sleep!" Lilac reluctantly complied with her captor's order, falling into a slumber that rivalled the one she had had in the hospital in Aureole. Unlike her sleep in the hospital bed, however, this one was different. This time, she dreamt.
+"I said sleep!" Lilac reluctantly complied with her captor's order, closing her eyes and falling into a slumber that rivalled the one she had had in the hospital in Aureole. Unlike her sleep in the hospital bed, however, this one was different.
 
 									*
 
-Lilac looked down, seeing her body looked like it was made purely from Ichor. Her body was moving, but she had no control over where it was going, as she floated around. in a world that looked like it was made of the same substance. It took her a little bit to notice that the burning sensation in her chest was gone, replaced by a tingling warmth throughout her body, though there was no physical body for her to feel with. She felt it anyway. As she looked around, the only part of her that she was able to control at the moment, she noticed with difficulty that she was currently hovering around where she had been before she lost her eye and leg, though it looked rather odd, being solely made from Ichor. Shortly after she had heard the news of Riaola's death by her kidnappers. The substance that made up her body grew brighter, getting slightly more solid, and the tingling grew slightly more painful. The Ichor here looked... wrong, almost. As she had been floating towards her, she could see lots of blue Ichor, in the shape of the parts of the Split she had swung past.
+Something was off the second Lilac realised she was aware of her surroundings. This sort of thing had happened to her before, but whenever she became aware she immediately woke up. This time, however, something was stopping her from waking up. She looked down to try and slap herself awake, only to see that her body was... made up of Ichor? That was new. It also dawned on her that she wasn't the only thing made purely out of Ichor, as the buildings around her were also composed of a hazy light blue-ish mist. Though it took slightly longer for the realisation to hit her, she also noticed that she was unable to move her arm, or any part of her body. All she could do was look around. So she did.
+
+As she looked around, seeing as it was the only option she really had, Lilac started noticing more and more details. She could just about make out some Ichor in the shape of a table with a coffee mug on it. A door just to the right, past a kitchen. She had just been here. She was somehow in Tuli's apartment. The shape of the door swung open, and in walked a shape so unmistakable to Lilac, despite its unintelligible form. Tuli. Holding... a letter?
+
+*Oh no. Not this.*
+
+Lilac knew what was going to happen next. Tuli walked up to her, handing the envelope to Lilac. Her hands moved on their own, and though she was unable to read the contents of the letter in this state, they were still etched into her brain to the point that she felt as though she *could* see them there.
+
+"We regret to inform you that Subject 1TBgsM3p was a failure. 
+
+While we at the \[Iocaiser's company] would like to be able to return her remains to you, we are unfortunately unable to do so for reasons outside of the company's control.
+
+We would like to extend to you an invitation to collect the belongings of Subject 1TBgsM3p at the address provided on the attached card. 
+
+Please note that if the belongings are not collected within seven days of this letter being received they will automatically become property of \[Iocaiser's Company] and unauthorised interaction will be met with justified force."
+
+Lilac desperately tried to fight her uncontrollable movements, the burning sensation in her chest from before she had slept now being felt across her entire body. Nothing worked, she was powerless to stop her body from following the movements she had taken back then. She grabbed the unreadable card, then dropped it as she ran to Riaola's room, returning and leaping out of the balcony renewed with Ichor. 
+
+Her eyes welling up with tiny flecks of Ichor reminiscent of tears, though this time Lilac was unable to tell whether it was because she had before, or because she was just crying---she was able to look around, after all. She created rope after rope as she swung across balconies, heading down the Split. She pleaded to her brain to stop this dream and send her back to Eaesod. She remained in this place, following her body as it travelled across and down the Split.
+
+The tears had mostly cleared up, and Lilac was able to see where she was going, though she already knew. She could see the outline of the advertisement with White's face on it. As she was approaching it, however, Lilac saw something that she only vaguely remembered from last time, assuming it was just a figment of her imagination. An enormous glow of Ichor in the shape of a man materialised from as if out of nowhere, just above her, though its colour was... wrong. It was white, but it trailed a stream of black behind it, and it seemed to interact with the advertisement, just before Lilac's body slammed into it.
+
+As it had before, Lilac's body plummeted down to the cables and wires below, her leg getting trapped in some of them and being torn clean off as she fell past it, eventually slowing down just before hitting the ground, surrounded in a net of wires and cables. Unlike last time, however she remained conscious for what came next. Unable to do anything else, Lilac kept watch as she saw part of the advertisement frame fall down past her---a stray piece of metal scratching her eye---and landing on a catwalk below. Her eyes darted away from it, back up to where she had fallen from. The glow of white and black Ichor had vanished in the time it took for her to look back up.
+
+Before she could think of anything else, however, two bodies emerged from seemingly out of nowhere, just as the previous entity had. They hovered around the broken advertisement frame, before glancing down towards Lilac, and speeding towards her. They stopped just before reaching her, with one of them reaching a hand out as black Ichor with white specks inside rushed towards her lost leg, wrapping around the stump. Lilac tried to get it off, but was still unable to move at all. She looked towards the other person, who was just hovering there, far more solid than anyone or thing else in this place. She tried to plead at them to help her, though her mouth did not move.
+
+Their eyes met, and the person paused for a moment, glancing at their companion, who seemed completely unaware Lilac's current status, trying get her out of the web of cables she was trapped inside. The person raised a hand, and their companion immediately froze in place. They looked back at Lilac.
+
+THIS... SHOULD NOT BE POSSIBLE. YOU CANNOT BE HERE. 
+
+Lilac felt shivers, despite the burning sensation throughout her body. Did it just speak to her? As in, *her* her? She tried to reply, but nothing happened.
+
+THIS MUST BE THE RELIC'S DOING, BUT HOW? WAS MASTER WHITE RIGHT? DOES IT TRULY HAVE A WILL OF ITS OWN? OR IS THIS JUST A PROPERTY OF PURE ICHOR? HE MUST HAVE KNOWN YOU HAD THE RELIC WHEN HE CAME HERE.
+
+White? As in, the White who had saved her? Lilac turned her eyes to face the voice's frozen companion. It was slightly hard to tell, but she felt as though she was able to make out the silhouette of him, now that she knew what to look for. Or maybe she was trying too hard. The person vanished. Lilac tried to call out, asking for them to come back, but again, her voice was frozen shut. Though unable to hear her pleas, the person returned a short while later anyway.
+
+I BELIEVE I SHOULD BE ABLE TO WAKE YOU UP, YOUR BODY SEEMS TO STILL BE HEALTHY AND FUNCTIONING. MASTER WHITE WILL ASSIST YOU WHEN YOU WAKE UP. I APOLOGISE FOR MEETING YOU LIKE THIS. I AM... CONFUSED. NONE OF THIS SHOULD BE POSSIBLE. ASSUMING MASTER WHITE WAS CORRECT, AND UNFORTUNATELY HE IS RARELY WRONG, THEN I SHALL SEE YOU AGAIN SOON, MISTRESS LILAC. 
+
+									*
+
+Lilac shot up with heavy, laboured breaths going in and out of her lungs. That- was that just a dream? It can't have been, could it? 
+
+"Damn." She turned abruptly, coming face to face with... not White? Her dream had told her that White would be there when she woke up, but this wasn't the man she remembered from the other day. "Good to see you awake again, Lilac. I surmise that you met TeVo?"
+
+"T- Wha. White?" White stood up, spinning for Lilac. "What do you think of my disguise? I think I did a good job on the scar, if I do say so myself."
+
+"I-"
+
+"Oh, right, pretend you don't know me." White winked at her, before bellowing out a loud, "she's awake!" 
+
+Lilac felt as though her ears should be ringing after that shout, though thankfully they weren't damaged at all. Eaesod shuffled into the cramped room, jumping up onto the arm of the sofa. They grabbed Lilac, peering into their eyes. 
+
+"You hurt?"
+
+"I'll... be fine. I need to. Go."
 
 
 
-She dreams of the place she had been at, and the advertisement she had hit. 
+Eaesod stops Lilac from leaving, telling "Rich boy" to keep her still until she recovers. 
 
-Rewrite last past, to show her reliving the events of the day she was swinging, starting with her recieving the news of Riaola's murder, and though she is unable to see the letter itself, the words are etched into her brain.
+White does so, and tells Lilac that he knows where she plans to go, but that it wont be a good idea.
 
-She eventually sees a massive glow just as she is about to hit White's advertisement.
+Lilac asks if he knew the whole time, and he doesn't respond, deflecting the question by talking to Eaesod, asking them how long they think itll take Lilac to recover.
 
-The glow surprises her again as she falls down, though she has more time to think about it this time.
+Eaesod says to fully recover itll be ages, but enough to leave will only be an hour or so.
 
-Unlike last time, however, she does not go unconscious as soon as she loses her leg. She doesn't even feel it this time, though she does see it happen as the ichor of her body loses its leg.
+Lilac asks how long she was out, and Eaesod says that it was about half a day.
 
-She is trapped among some wires, also made of ichor in the shape of cables and wires.
+Lilalc does the math in her head, and its very nearly been seven days since she recieved the letter, as she was in the hospital for nearly a week (change it so she was in the hospital for nearly a week, hence why she was so desperate to go there.)
 
-She eventually sees White materialise alongside another person, constantly shifting shapes, both made of Ichor.
 
-They talk, before the other person, still constantly shifting shapes suddenly looks as though it snaps out of a trance, and looks directly at Lilac.
 
-It is incredibly confused as to how Lilac could possibly be here, and also mentions that White told it not to show itself to her until... (she joins up)
 
-Both Lilac and the Person are extremely confused, and the Person mentions that this is likely due to her somehow managing to absorb the Relic from around her neck (it was in the shape of a necklace), and that it must have somehow changed a small part of her biology to make herself part Ichor, though it mentions how ridiculous that sounds. (Tevo is basically just talking to themselves, not caring that lilac doesn't understand a word they are saying)
 
-The Person vanishes, returning only a few seconds later to say that they should be able to send her back, and that White and Eaesod are still with her body.
 
-Lilac is confused by the fact that they said White was there, but The Person is too distracted to care at the moment.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
