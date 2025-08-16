@@ -876,13 +876,40 @@ Lilac shot up with heavy, laboured breaths going in and out of her lungs. That- 
 
 "I-"
 
-"Oh, right, pretend you don't know me." White winked at her, before bellowing out a loud, "she's awake!" 
+"Oh, right, pretend you don't know me." White winked at her, before bellowing out a loud, "SHE'S AWAKE!" 
 
 Lilac felt as though her ears should be ringing after that shout, though thankfully they weren't damaged at all. Eaesod shuffled into the cramped room, jumping up onto the arm of the sofa. They grabbed Lilac, peering into their eyes. 
 
 "You hurt?"
 
-"I'll... be fine. I need to. Go."
+"I'll be... fine. I need to. Go."
+
+Lilac glanced towards White, seeing a glimmer in them, as he spoke out. "I have to say she's rather determined. Perhaps it would be best if someone went with her."
+
+"Hmph. Very well. If she gets hurt I'll blame you Rich Boy." They climbed down from Lilac's chest, waddling over to their own chair, standing on top of it.
+
+He smiled at them, and even though his face looked different, his smile still felt the same to Lilac. *He really does look like Mom with that smile...*
+
+"I wouldn't have it any other way." He helped Lilac up, grabbing her cane and placing it in her hands. In a much quieter voice, he whispered to Lilac, "I know where you wanna go, I'll take you there, but... prepare yourself."
+
+*He... knows?* Lilac's head spun. How long had White known? More importantly, why hadn't he said anything before now? Before she could think, White had already helped her walked out of the store, and they were going down the side street. The imposing walls around her seemed slightly smaller with White next to her, though they felt bigger and bigger as they moved.  
+
+"They make it almost impossible for anyone to meet their deadlines." Lilac could barely understand a word he was saying, but he kept talking anyway. "If you do this, you'll be making an extremely powerful enemy." *That* she understood.
+
+"I don't care. I have to see her."
+
+"Oh, make no mistake, I *want* you to make them your enemy, I just want you to know what you're getting into."
+
+"You still want me to join you... why?"
+
+"Because I need your help." He was hiding something, and looking at that smile, she could tell he knew that she understood that. The conversation lapsed, and they both walked in silence, except for the occasional muffled groan coming from Lilac. She tried to focus on the houses around her. Eaesod's shop was the only place she had truly explored in \[The Split Floor], and even then she  and only done so because her mother had known Eaesod.
+
+
+
+
+
+
+
 
 
 
