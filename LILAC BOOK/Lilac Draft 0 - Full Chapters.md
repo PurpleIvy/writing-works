@@ -902,28 +902,11 @@ He smiled at them, and even though his face looked different, his smile still fe
 
 "You still want me to join you... why?"
 
-"Because I need your help." He was hiding something, and looking at that smile, she could tell he knew that she understood that. The conversation lapsed, and they both walked in silence, except for the occasional muffled groan coming from Lilac. She tried to focus on the houses around her. Eaesod's shop was the only place she had truly explored in \[The Split Floor], and even then she  and only done so because her mother had known Eaesod.
+"Because I need your help." He was hiding something, and looking at that smile, she could tell he knew that she understood that. The conversation lapsed, and they both walked in silence, except for the occasional muffled groan coming from Lilac. She tried to focus on the houses around her. Eaesod's shop was the only place she had truly explored in \[The Split Floor], and even then she had only done so because her mother had known Eaesod. Part of her wanted to push him away completely but... there was something inticing about that smile. A faint voice inside her head spoke to her, *he could teach you how to use Ichor better, he can clearly do better than you can after all...*  She tried to ignore it, though only succeeded once her and White arrived at the building they were seemingly supposed to arrive at.
+
+"I'm surprised you didn't recognise the logo." White spoke put, shocking Lilac out of her dissociation. "You saw it earlier. I even pointed it out." Lilac tried to follow White's finger, though her eyes barely let her succeed. She did anyway, though the fire that she began to realise was still burning deeply inside her, lit up even further. Seeing her lack of response, White opened the door, gesturing for Lilac to walk inside. She tried to make eye contact, but he was just looking down at the cold stone ground. She stopped trying, and walked further inside the building; the cold air of the air conditioning unit brushing against her face as she did so. 
 
 
-
-
-
-
-
-
-
-
-Eaesod stops Lilac from leaving, telling "Rich boy" to keep her still until she recovers. 
-
-White does so, and tells Lilac that he knows where she plans to go, but that it wont be a good idea.
-
-Lilac asks if he knew the whole time, and he doesn't respond, deflecting the question by talking to Eaesod, asking them how long they think itll take Lilac to recover.
-
-Eaesod says to fully recover itll be ages, but enough to leave will only be an hour or so.
-
-Lilac asks how long she was out, and Eaesod says that it was about half a day.
-
-Lilalc does the math in her head, and its very nearly been seven days since she recieved the letter, as she was in the hospital for nearly a week (change it so she was in the hospital for nearly a week, hence why she was so desperate to go there.)
 
 
 
