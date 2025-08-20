@@ -902,15 +902,37 @@ He smiled at them, and even though his face looked different, his smile still fe
 
 "You still want me to join you... why?"
 
-"Because I need your help." He was hiding something, and looking at that smile, she could tell he knew that she understood that. The conversation lapsed, and they both walked in silence, except for the occasional muffled groan coming from Lilac. She tried to focus on the houses around her. Eaesod's shop was the only place she had truly explored in \[The Split Floor], and even then she had only done so because her mother had known Eaesod. Part of her wanted to push him away completely but... there was something inticing about that smile. A faint voice inside her head spoke to her, *he could teach you how to use Ichor better, he can clearly do better than you can after all...*  She tried to ignore it, though only succeeded once her and White arrived at the building they were seemingly supposed to arrive at.
+"Because I need your help." He was hiding something, and looking at that smile, she could tell he knew that she understood that. The conversation lapsed, and they both walked in silence, except for the occasional muffled groan coming from Lilac. She tried to focus on the houses around her. Eaesod's shop was the only place she had truly explored in \[The Split Floor], and even then she had only done so because her mother had known Eaesod. Part of her wanted to push him away completely but... there was something enticing about that smile. A faint voice inside her head spoke to her, *he could teach you how to use Ichor better, he can clearly do better than you can after all...*  She tried to ignore it, though only succeeded once her and White arrived at the building they were seemingly supposed to arrive at.
 
-"I'm surprised you didn't recognise the logo." White spoke put, shocking Lilac out of her dissociation. "You saw it earlier. I even pointed it out." Lilac tried to follow White's finger, though her eyes barely let her succeed. She did anyway, though the fire that she began to realise was still burning deeply inside her, lit up even further. Seeing her lack of response, White opened the door, gesturing for Lilac to walk inside. She tried to make eye contact, but he was just looking down at the cold stone ground. She stopped trying, and walked further inside the building; the cold air of the air conditioning unit brushing against her face as she did so. 
-
-
+"I'm surprised you didn't recognise the logo." White spoke put, shocking Lilac out of her dissociation. "You saw it earlier. I even pointed it out." Lilac tried to follow White's finger, though her eyes barely let her succeed. She did anyway, though the blazing fire in her chest was quite distracting. Seeing her lack of response, White opened the door, gesturing for Lilac to walk inside. She tried to make eye contact, but he was just towards the building. She gave up for now, and they walked further inside the building; the cold air of the air conditioning unit brushing against her face as they did so. 
 
 
 
+They walk through, into what looks to be a reception desk, no one is there, but a camera follows their movements (White flips it off)
 
+There are traces of people having been here, but no sign of them still being here.
+
+White mentions that there is a Gate Room up ahead, and Lilac asks if he's been here before, and White doesn't reply.
+
+They arrive at the room, and White says he'll be able to send them through the warp gate, though says its not pleasant through there, and she should prepare herself, asking once again if shes certain she wants to do this.
+
+She nods, and White helps her to the gate, and does some stuff, sending her through, letting her know he will follow her soon after,
+
+She appears on the other side of the gate somewhere, and walks out. The smell of dried blood hits her, and she sees claw marks across the room (and a few tufts of fur), as if some giant animal was rampaging about. 
+
+The place itself is trashed, desks and chairs thrown about, glass shattered everywhere, but it looks like some sort of testing laboratory.
+
+Lilac walks forward, barely able to contain the fire inside her, until she notices something on the ground, picking it up. 
+
+It's part of a bracelet, that looks as though it snapped as the arm inside it expanded (figure out how to write that better)
+
+It was one that she made for Riaola.
+
+Lilac snaps, the fire inside her engulfing her completely, as it expands outside her, and she sobs loud, gut-wrenching howls of pain and grief and anguish.
+
+The fire inside her is the Relic, her emotions igniting it, fueling it, until it reached a breaking point, and her vision is overcome with Ichor, she can see the ichor in everything around her, and it's getting smaller as she and the Relic absorb it.
+
+She doesn't even realise until it's too late that she absorbed the Ichor from the gate, trapping her down there.
 
 
 

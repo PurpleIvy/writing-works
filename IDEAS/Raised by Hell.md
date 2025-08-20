@@ -58,3 +58,19 @@ They blame the townspeople, every single one of them, and tells them that they v
 
 end with the slaughter of the townspeople being implied but not shown.
 
+
+
+
+
+
+FANTASY.
+
+MAGIC SYSTEM BASED AROUND THE THEME OF CONTROL, FEAR, AND TRUST.
+
+The more someone fears you, the greater control you have over them.
+
+Control through fear is powerful, but only for a short time, because you end up becoming paranoid about losing your fear.
+
+Loyalty through trust versus fear.
+
+(Figure out what the actual magic part of the system could be, though mindless thralls could be a likely part of it)
